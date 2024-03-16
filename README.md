@@ -1,0 +1,2 @@
+*Shortens your Sword*
+
